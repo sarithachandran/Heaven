@@ -1,4 +1,0 @@
-jaansi
-varsha
-junaa
-jakar
